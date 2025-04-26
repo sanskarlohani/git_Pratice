@@ -1,1 +1,1 @@
-we are just doing pratice
+we are just doing practice
